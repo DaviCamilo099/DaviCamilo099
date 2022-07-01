@@ -1,4 +1,4 @@
-- 👋 Eae, me chamo @DaviCamilo099
+- 👋 Eae, me chamo Davi Camilo
 - 👀 Sou estudante do colégio Maluf
 - 🌱 Gosto muito de jogar bola
 - 💞️ Tenho 16 anos
